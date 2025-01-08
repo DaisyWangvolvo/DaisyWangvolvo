@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning in volvo digital team.  
 - 💞️ I’m looking to collaborate on the Co-Dev projects, EIP projects and other things...
 - 📫 Please reach me via teams or email. Happy to make friends and know about you.
-- 😄 Pronouns: You can call me Daisy, Jun... or 俊俊，俊俊子，大俊，，，
+- 😄 Pronouns: You can call me Daisy, Jun... 
 - ⚡ Fun fact: .....too  
 
 <!---
